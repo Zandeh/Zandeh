@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zandeh
+- 👀 I’m interested in goats
+- 🌱 I’m currently learning sex
+- 💞️ I’m looking to collaborate on your mother
+- 📫 How to reach me Discord- ຊคຖ໓ē$#6666
